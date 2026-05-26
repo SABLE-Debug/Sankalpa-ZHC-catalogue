@@ -1,1 +1,0 @@
-# Sankalpa-ZHC-catalogue
